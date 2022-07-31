@@ -1,2 +1,0 @@
-Piyush Kulkarni
-Ishan Kulkarni
